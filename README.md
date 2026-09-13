@@ -1,1 +1,1 @@
-## A collection of high-res desktop wallpapers.
+## A collection of desktop wallpapers.
